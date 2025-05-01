@@ -98,3 +98,4 @@ https://www.reddit.com/r/privacy/comments/6anwpt/does_anyone_know_of_a_private_m
 
 https://www.spotriskhq.com/dictionary/drop-address
 
+https://www.global-virtualoffice.com/maildrops/
